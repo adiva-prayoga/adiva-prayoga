@@ -1,9 +1,9 @@
-<br>
+![rat-dance-1588351224](https://github.com/user-attachments/assets/aa92be92-5b51-4503-aee4-abe7002c5c59)<br>
 
 <div align="left">
   
-  ![kita-ikuyo-ikuyo-kita](https://github.com/adiva-prayoga/adiva-prayoga/assets/32256496/57168f0f-7dc3-4faa-b8e0-94f5322adeba)
-  
+  ![rat-dance-1588351224](https://github.com/user-attachments/assets/d3e27404-3469-4cad-903d-b26430f5b81a)
+
   <br>
 </div>
 
